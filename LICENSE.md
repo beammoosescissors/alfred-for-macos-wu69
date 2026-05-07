@@ -1,4 +1,4 @@
-
+Alfred for macOS elite Automation - note encryption and multi-device sync offers the most advanced Alfred for macOS automation, with note encryption and multi-device sync. Ideal
 
 
 
